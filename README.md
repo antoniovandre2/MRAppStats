@@ -1,1 +1,1 @@
-mathematicalramblings.blogspot.com
+Saudações caros Matemáticos.
